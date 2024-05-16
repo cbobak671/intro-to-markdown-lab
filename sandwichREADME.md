@@ -39,7 +39,7 @@ Some ingredients to consider:
 ```
 
 ## 3. Mayo or Mustard - which condiment are you?
-Don't forget the glue that binds it all together -- the condiment! Are you a mayo or mustard (or something else) person? There's no wrong answer. Just be sure you use enought to keep all the goodness from step 2 above in place! 
+Don't forget the glue that binds it all together -- the condiment! Are you a mayo or mustard (or something else) person? There's no wrong answer. Just be sure you use enough to keep all the goodness from step 2 above in place! 
 
 ## 4. Construct the perfect sandwich
 Now that you have chosen your bread, your fillings, and your condiment(s), let's bring your vision to life! Follow these *suggested* steps: 
